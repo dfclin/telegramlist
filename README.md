@@ -4,7 +4,8 @@ Telegram中文群索引列表（言论自由版）Updated 2017.10
 
 1 社群
 
-👥🌐|👤 3393| 科技圈 (https://t.me/TechnologyCN)  
+👥🌐|👤 3393| 科技圈 (https://t.me/TechnologyCN)
+👥🌐|👤 3393| 黑产灰产谋财之路 (https://t.me/joinchat/JND4YBA_jL8iZXIyLAaroQ)  
 👥🌐|👤 3066|【官方】| wikipedia-zh (https://t.me/wikipedia_zh)  
 👥🌐|👤 1520| 知乎 (https://t.me/zhihuwenda)  
 👥🌐|👤 1213| 关爱少女成长协会💃💃💃 (https://t.me/nicebowl)  
